@@ -9,7 +9,9 @@ Awesome Pan Source
 
 ## Search
 
-- 
+- https://pan666.net/
+- https://www.dashengpan.com/
+- https://www.sssoou.com/
 
 ## Source
 
